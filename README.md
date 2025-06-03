@@ -1,0 +1,1 @@
+# Zakharov_HW_HASH
